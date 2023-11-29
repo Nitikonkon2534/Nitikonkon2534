@@ -8,4 +8,4 @@
 Nitikonkon2534/Nitikonkon2534 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
--SPEED internet service Updating settings in the community and update In a number setting up the network internet marketing services provider for all 
+-SPEED internet serviceable in 10.10.10 internet marketing is one is that you will need to 10MB-1500MBsettings a web site that Topspeedsin the community and update In a number setting up the network internet marketing services provider for all 
